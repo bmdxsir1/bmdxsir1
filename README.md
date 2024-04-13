@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bmdxsir1
+- 👀 I'm currently working on the STICK RPG 3 community project development, that's right! We're making the long awaited sequel
+- for the STICK RPG series after a long time of waiting its here in current progress to release! To join the project Please join us or contact me at my discord aligator5657
+- 
